@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HydraSS1
 - 👀 I’m interested in Remote Access (Phones and Puters), File Manipulation, Deep Diving The Net just to see what can or can't be found
-- 🌱 I’m currently learning that I still have a lot to learn, and I need to STFU too Listen and Learn when Pwople are seriously trying to help me.
+- 🌱 I’m currently learning that I still have a lot to learn, and I need to STFU too Listen and Learn when People are seriously trying to help me.
 - 💞️ I’m looking to collaborate on most ALL Tech Iasues and Projects.
 - 📫 How to reach me ... If You know how, please let me know as well.
 - 😄 We are Legion: We are Many ...
